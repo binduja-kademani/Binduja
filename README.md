@@ -52,4 +52,4 @@
 
 
 ## Contact
-Created by [@ROOPHS] - feel free to contact me!
+Created by [bindu.kademani@gmail.com] - feel free to contact me!
